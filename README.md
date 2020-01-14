@@ -1,4 +1,4 @@
 # recipes
 nothing
 
-A collection if misguiding recipies
+A collection of sweet desserts recipes
